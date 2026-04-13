@@ -3,6 +3,8 @@
 **Candidate:** Cristiano Barbosa  
 **Seniority:** Senior  
 
+<img width="920" height="338" alt="image" src="https://github.com/user-attachments/assets/7cfd4978-0f72-41db-8ac3-ee798d70b21a" />
+
 ---
 
 ## Overview
